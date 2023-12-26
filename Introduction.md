@@ -1,0 +1,1 @@
+Harnessing the power of cummunity contributions is a valuable strategy for any organization. Recognizing and hightlighting the efforts of your community contributors not only expresses gratitude but also fosters a sense of belonging and encourages continued engagement.
